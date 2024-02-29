@@ -1,1 +1,1 @@
-Kebsik + fryteczki
+Tylko kebsik
